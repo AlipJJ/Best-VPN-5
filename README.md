@@ -42,11 +42,11 @@
 
 -----
 
-## 3.FeiJiCloud飞机云机场-2024便宜的手机电脑挂外网梯子推荐
-[点击官方网站注册](https://go.51tz.cc/fjcloud)  
+## 3.FJFcloud疾风云机场-2024便宜的手机电脑挂外网梯子推荐
+[点击官方网站注册](https://go.51tz.cc/jfcloud)  
 最低套餐月付10元
 
-飞机云网络加速器是一家专注于ssr和V2ray翻墙机场节点。采用国内优质IEPL专线加速，由海外团队运营，使用SSR+V2ray协议，一键导入支持Clash、Shadowsocks等翻墙插件。
+疾风云网络加速器是一家专注于ssr和V2ray翻墙机场节点。采用国内优质IEPL专线加速，由海外团队运营，使用SSR+V2ray协议，一键导入支持Clash、Shadowsocks等翻墙插件。
 
 线路节点快速稳定，支持netflix网飞等流媒体解锁，支持流畅访问chatgpt、google、Tiktok、youtube、Github等外网。
 
@@ -54,7 +54,7 @@
 
 在线客服快速回复，问题处理效率高，机场还提供包含小火箭的苹果账号和 Netflix 账号购买渠道。
 
-![feijicloud.jpg](https://s2.loli.net/2024/01/19/JTRhiDalqBAspeC.jpg)
+
 
 -----
 
